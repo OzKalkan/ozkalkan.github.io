@@ -1,1 +1,0 @@
-# ozkalkan.github.io
